@@ -1,1 +1,0 @@
-# C-2024-Hapyy-Cristmas
